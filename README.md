@@ -1,2 +1,1 @@
-# mesin-tetas-telur
-ayam
+
